@@ -10,6 +10,7 @@
 
 > #### 취미
 >> * 게임 : 철권 롤 피파 등등
+>> * (철권이나 프리스타일2 하는사람 찾아요)
 >> * 음악감상
 >>> <img src="https://user-images.githubusercontent.com/78997415/166955575-c9f48acf-232a-48a9-ba31-772c35587511.jpg" width="30%"></img>
 
